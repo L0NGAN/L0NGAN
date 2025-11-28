@@ -4,13 +4,9 @@
 
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
-﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
-
 ୨୧ ꒰ longan ; lover ꒱ ୨୧
 
 𓉸ྀི cyan hijirikawa & usagi fictionkin!! 𓉸ྀི ♡ˊˎ-
-
-﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
