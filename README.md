@@ -4,7 +4,7 @@
 
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
-୨୧ ꒰ longan lover ♡
+୨୧ ꒰ longan dragon cookie lover ♡
 
 ୨୧ ꒰ cyan hijirikawa & usagi fictionkin!! ♡
 
