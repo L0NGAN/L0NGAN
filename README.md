@@ -1,1 +1,13 @@
 ![1000156226](https://github.com/user-attachments/assets/b1e3add9-800c-4611-83d8-290ce6a0655d)
+‍
+‍
+
+         ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+         ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
+              ୨୧ ꒰ longan ; lover ꒱ ୨୧
+  𓉸ྀི cyan hijirikawa & usagi fictionkin!! 𓉸ྀི 
+                         ♡ˊˎ-
+         ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+         ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+
+‍
