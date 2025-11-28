@@ -6,7 +6,7 @@
 
 ୨୧ ꒰ longan ; lover ꒱ ୨୧
 
-𓉸ྀི cyan hijirikawa & usagi fictionkin!! 𓉸ྀི ♡ˊˎ-
+୨୧ ꒰ cyan hijirikawa & usagi fictionkin!! ♡ˊˎ-
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
