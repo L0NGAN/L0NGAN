@@ -2,11 +2,11 @@
 
 ︵︵︵⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀︵⠀⠀⠀⠀⠀⠀⠀⠀♡
 
- she , her⠀⠀⠀.ᐟ⠀⠀⠀⠀⠀(⠀⠀⠀⠀longan lover⠀⠀⠀⠀)
+ she / her⠀⠀⠀.ᐟ⠀⠀⠀⠀⠀(⠀⠀⠀⠀longan lover⠀⠀⠀⠀)
  
  
  .⠀°⠀⠀⠀⠀⠀⠀⠀˚⠀⠀⠀⠀⠀⠀.⠀˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀°⠀⠀⠀⠀⠀⠀.⠀⠀⠀⠀｡
 
-⠀⠀⠀cyan hijirikawa & usagi fictionkin
+⠀cyan hijirikawa & usagi fictionkin
 
 ⠀⠀°⠀⠀⠀.⠀⠀⠀⠀⠀⠀⠀⠀⠀｡⠀⠀⠀˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀｡⠀°⠀⠀⠀.
