@@ -4,11 +4,8 @@
 
  she , her   .ᐟ      (     longan lover    )
  
-  .⠀°       ˚      . ˚              
-  °      .    ｡
+  .⠀°       ˚      . ˚                °      .    ｡
 
 cyan hijirikawa & usagi fictionkin
 
-⠀⠀°     .         ｡   ˚               ｡ 
-
-°     .
+⠀⠀°     .         ｡   ˚               ｡ °     .
