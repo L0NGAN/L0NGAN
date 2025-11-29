@@ -7,6 +7,6 @@
  
  .⠀°⠀⠀⠀⠀⠀⠀⠀˚⠀⠀⠀⠀⠀⠀.⠀˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀°⠀⠀⠀⠀⠀⠀.⠀⠀⠀⠀｡
 
-⠀cyan hijirikawa & usagi fictionkin
+⠀⠀⠀cyan hijirikawa & usagi fictionkin
 
 ⠀⠀°⠀⠀⠀.⠀⠀⠀⠀⠀⠀⠀⠀⠀｡⠀⠀⠀˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀｡⠀°⠀⠀⠀.
